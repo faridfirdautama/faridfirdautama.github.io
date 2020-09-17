@@ -1,1 +1,0 @@
-# faridfirdautama.github.io
